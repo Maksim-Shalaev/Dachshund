@@ -1,4 +1,4 @@
-###Та́кса (нем. Dachshund, dackel) — порода южно-немецких норных охотничьих собак .
+## Та́кса (нем. Dachshund, dackel) — порода южно-немецких норных охотничьих собак ##
 
 Существует **несколько** разновидностей такс, отличающихся размерами и весом — *стандартные, миниатюрные и кроличьи*. Также такс разделяют по шёрстному покрову на гладкошерстных, длинношёрстных и жесткошёрстных.
 
@@ -6,5 +6,5 @@
 
 Такса родом из Германии, даже неофициальный герб Германии — такса. Таксы живут до 16 лет, бывают случаи, когда таксы жили 18 и больше лет. Дальние родственники такс встречаются ещё на рисунках древних египтян.
 
-[https://yandex.ru/images/search?from=tabbar&nomisspell=1&text=%D1%82%D0%B0%D0%BA%D1%81%D0%B0%20%D0%B0%D1%80%D1%82&source=related-4&pos=28&rpt=simage&img_url=http%3A%2F%2Fkartinkin.net%2Fpics%2Fuploads%2Fposts%2F2022-07%2F1656638312_41-kartinkin-net-p-tigrovaya-taksa-art-krasivo-42.jpg&lr=155185](https://yandex.ru/images/search?from=tabbar&nomisspell=1&text=%D1%82%D0%B0%D0%BA%D1%81%D0%B0%20%D0%B0%D1%80%D1%82&source=related-4&pos=28&rpt=simage&img_url=http%3A%2F%2Fkartinkin.net%2Fpics%2Fuploads%2Fposts%2F2022-07%2F1656638312_41-kartinkin-net-p-tigrovaya-taksa-art-krasivo-42.jpg&lr=155185)
 
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.newsweek.com%2Ftiktok-viral-dog-video-dachshund-kneading-cooking-show-1732989&psig=AOvVaw10EqeB3_Qms2Xfv7qaW_Ks&ust=1678112818296000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCLi8mMX_xP0CFQAAAAAdAAAAABAE)

@@ -7,4 +7,5 @@
 Такса родом из Германии, даже неофициальный герб Германии — такса. Таксы живут до 16 лет, бывают случаи, когда таксы жили 18 и больше лет. Дальние родственники такс встречаются ещё на рисунках древних египтян.
 
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.newsweek.com%2Ftiktok-viral-dog-video-dachshund-kneading-cooking-show-1732989&psig=AOvVaw10EqeB3_Qms2Xfv7qaW_Ks&ust=1678112818296000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCLi8mMX_xP0CFQAAAAAdAAAAABAE)
+
+![](https://d.newsweek.com/en/full/2096227/dachshund-puppy-seen-blanket.jpg?w=1600&h=1600&q=88&f=54fd196679034390bbf56e7bcb1c3bee)
